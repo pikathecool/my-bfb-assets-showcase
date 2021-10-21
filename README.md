@@ -1,2 +1,3 @@
 # my-bfb-assets-showcase
-yeah you can have them but if your using them give me credit
+so um you can use them but give me credit also if you want to watch them in full screen then go to my channel!
+link: https://www.youtube.com/channel/UCMLxzGfVJwSRJgH3rzc2U2Q
